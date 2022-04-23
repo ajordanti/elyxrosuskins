@@ -6,3 +6,6 @@
 
 # [Zylice Skin Mix](https://www.dropbox.com/s/hi1glyr07ykdkm2/Zylice%20Skin%20Mix.osk?dl=0)
 ![](https://imgur.com/4s4H3iG.png)
+
+# [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
+![](https://imgur.com/GyOxDqs.png)
