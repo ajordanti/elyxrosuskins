@@ -29,4 +29,4 @@
 ![](https://i.imgur.com/npPlePy.png)
 
 # [RYUKAYYY wit da MONKOO edit](https://www.mediafire.com/file/eguhsffrh73e65g/RYUKAYYY_MONKOO_edit.osk/file)
-![](https://i.imgur.com/z7S9aNn.png)
+![](https://i.imgur.com/hyRseM9.png)
