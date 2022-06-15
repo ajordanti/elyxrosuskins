@@ -2,7 +2,7 @@
 (ty chiri for helping me set it up)
 
 # [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/luhmv0zy3kpcg80/Xeize_Mix_V6_Elyxr_Edit.osk/file)
-![](https://i.imgur.com/zAvEOzs.png)
+![](https://i.imgur.com/mkwbIbB.png)
 
 # [Zylice Skin Mix (2022)](https://www.dropbox.com/s/jpy51k87ae1intn/Zylice%20Skin%20Mix%20%282022%29.osk?dl=0)
 ![](https://imgur.com/EWKgenj.png)
