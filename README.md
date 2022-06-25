@@ -2,7 +2,7 @@
 (ty chiri for helping me set it up)
 
 # [« Elyxr Mix »](https://www.mediafire.com/file/0r4v9qqos7njkij/%25C2%25AB_Elyxr_Mix_%25C2%25BB.osk/file)
-![](https://i.imgur.com/Apch40l.png)
+![](https://i.imgur.com/v9SLJeN.png)
 
 # [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/luhmv0zy3kpcg80/Xeize_Mix_V6_Elyxr_Edit.osk/file)
 ![](https://i.imgur.com/mkwbIbB.png)
