@@ -4,6 +4,9 @@
 # [« Elyxr Mix »](https://www.mediafire.com/file/e5vaeqres96var2/%25C2%25AB_Elyxr_Mix_%25C2%25BB.osk/file)
 ![](https://i.imgur.com/v9SLJeN.png)
 
+# [ryuk skin mix](https://www.mediafire.com/file/9com31ydjxw9oo5/ryuk_skin_mix.osk/file)
+![](https://i.imgur.com/41hxf1T.png)
+
 # [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/luhmv0zy3kpcg80/Xeize_Mix_V6_Elyxr_Edit.osk/file)
 ![](https://i.imgur.com/mkwbIbB.png)
 
