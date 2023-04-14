@@ -7,7 +7,7 @@
 # [ryuk skin mix](https://www.mediafire.com/file/9com31ydjxw9oo5/ryuk_skin_mix.osk/file)
 ![](https://i.imgur.com/41hxf1T.png)
 
-# [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/luhmv0zy3kpcg80/Xeize_Mix_V6_Elyxr_Edit.osk/file)
+# [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/zpn3ijs7x2865vw/Xeize_Mix_V6.osk/file)
 ![](https://i.imgur.com/mkwbIbB.png)
 
 # [Zylice Skin Mix (2022)](https://www.dropbox.com/s/jpy51k87ae1intn/Zylice%20Skin%20Mix%20%282022%29.osk?dl=0)
