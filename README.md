@@ -5,6 +5,9 @@ edited: (9/18/2023)
 # [« Elyxr »](https://drive.google.com/file/d/1w21S2bgZHkefuztVArklKavMBnzCfTq-/view?usp=sharing)
 ![](https://i.imgur.com/5HE1Y1b.png)
 
+# [« Elyxr » (no border)](https://drive.google.com/file/d/1vvOOhI9tqLWWtbd9EP1Z4_G7SW7pM4pG/view?usp=sharing)
+![](https://i.imgur.com/JWDFlkk.png)
+
 # [Xeize Mix V6 Elyxr Edit](https://drive.google.com/file/d/1Ucga9qnRCrHcZqmpixUJSaPapNW721eH/view?usp=sharing)
 ![](https://i.imgur.com/mkwbIbB.png)
 
