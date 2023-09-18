@@ -3,7 +3,7 @@
 edited: (9/14/2023)
 
 # [« Elyxr »](https://drive.google.com/file/d/1w21S2bgZHkefuztVArklKavMBnzCfTq-/view?usp=sharing)
-![](https://i.imgur.com/YQ8p3Ta.png)
+![](https://i.imgur.com/PCx7nmX.png)
 
 # [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/zpn3ijs7x2865vw/Xeize_Mix_V6.osk/file)
 ![](https://i.imgur.com/mkwbIbB.png)
