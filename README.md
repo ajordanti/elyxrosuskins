@@ -2,10 +2,8 @@
 (ty chiri for helping me set it up)
 edited: (9/14/2023)
 
-# [the usual](https://www.mediafire.com/file/rzxblqhafte9qx2/varvalian_ely_edit.osk/file)
-
-# [« Elyxr Mix »](https://www.mediafire.com/file/e5vaeqres96var2/%25C2%25AB_Elyxr_Mix_%25C2%25BB.osk/file)
-![](https://i.imgur.com/v9SLJeN.png)
+# [« Elyxr »](https://drive.google.com/file/d/1w21S2bgZHkefuztVArklKavMBnzCfTq-/view?usp=sharing)
+![](https://i.imgur.com/YQ8p3Ta.png)
 
 # [Xeize Mix V6 Elyxr Edit](https://www.mediafire.com/file/zpn3ijs7x2865vw/Xeize_Mix_V6.osk/file)
 ![](https://i.imgur.com/mkwbIbB.png)
