@@ -1,6 +1,7 @@
 # Skins That I Use
 (ty chiri for helping me set it up)
 edited: (9/18/2023)
+# [placeholder for current skin](https://drive.google.com/file/d/1Xae0sOdcGD1HSmlGAFBn-XBW0utgfDhQ/view?usp=sharing)
 
 # [« Elyxr »](https://drive.google.com/file/d/1w21S2bgZHkefuztVArklKavMBnzCfTq-/view?usp=sharing)
 ![](https://i.imgur.com/5HE1Y1b.png)
